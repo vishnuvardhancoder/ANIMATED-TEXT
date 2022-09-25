@@ -1,2 +1,2 @@
 # ANIMATED-TEXT
-https://user-images.githubusercontent.com/98823582/192128736-bd9e3c43-5f87-48f8-9c49-b370931711f2.mp4
+https://user-images.githubusercontent.com/98823582/192128767-7ace4fb2-6285-4d8b-87f7-72b1a500d253.mp4
